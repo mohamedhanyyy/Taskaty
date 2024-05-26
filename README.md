@@ -1,0 +1,2 @@
+# Taskaty
+Taskaty privacy policy
